@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pawick69
-- 👀 I’m interested in femboys
+- 👀 I’m interested in big booty bitches
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on DDU projekt
 - 📫 How to reach me, you cant
